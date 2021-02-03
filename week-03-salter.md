@@ -1,0 +1,1 @@
+I know that Gesamtkunstwerk is a relationship between art and music.  From reading, I realized that one example of a modern Gesamtkunstwerk was the Red House. The house, using traditional construction methods and materials, was also a pioneering example of the arts and crafts movement. 
