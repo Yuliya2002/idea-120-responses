@@ -10,4 +10,4 @@ aesthetic signified, namely, the still life. On Instagram, people don't care how
 it was difficult to prepare it because people need the beauty of this food. The fourth sign is the composition of
 the image conveys an aesthetic signified, namely, the still life. On Instagram, people who post, or rather photos
 of food, so that other people like it and so that the food looks beautiful in this image. The third message is the
-Symbolic Image. The symbolic message is in fact the second "iconic" message.
+Symbolic Image. The symbolic message is in fact the second "iconic" messages.
